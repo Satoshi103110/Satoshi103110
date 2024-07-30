@@ -1,7 +1,7 @@
 ## Hi there 👋🎱
 
 Meu nome é GERSON SATOSHI
-- Prtofessor de TECNOLOGIA
+- Professor de TECNOLOGIA
 - Juntos somos mais fortes
 
 
