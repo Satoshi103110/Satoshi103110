@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hi there 👋🎱
 
-<!--
-**Satoshi103110/Satoshi103110** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é GERSON SATOSHI
+- Prtofessor de TECNOLOGIA
+- Juntos somos mais fortes
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### para falar comigo entrar em contato 📫
+gersonsatoshi@professor.educacao.sp.gov.br
+
+![](https://tenor.com/pt-BR/view/black-clover-black-clover-movie-black-clover-sword-of-the-wizard-king-mahou-tei-no-ken-liebe-gif-15014083162250423716)
+
+
